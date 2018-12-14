@@ -1,1 +1,0 @@
-# shoping_lista
